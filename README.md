@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Ezra009
 - 👀 I’m interested in learnig new things.
 - 🌱 I’m currently learning programming.!!
-- 💞️ I’m looking to collaborate on learnig many things!!
+- 💞️ I’m looking to collaborate on learning many things!!
 - 📫 Reach me via god. XD.
       [[we will meet if our fate lead us]]
 
